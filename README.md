@@ -15,7 +15,8 @@ Thank you for reading thus far
 and if someone could send this to the bingle/kyusoob individual it would be appreciated, many thanks
 
 I also don't mind being blocked, I just want them to know more of the other side of the story since I did actually see them talk about me behind my back and did nothing to confront them then, mea culpa
-Also don't feel the need to unblock me after this, I just need a way of knowing you read this so I can delete it.
+Also don't feel the need to unblock me after this, I just need a way of knowing you read this so I can delete it. Either via ponytown or MY strawpage since I'd love that to be the middle ground, not any of your socials since I don't mind my public links being opened. Atabook could work too.
+
 I don't want this here, but have no other way to message you either and I will not go out of my way to find how to do that.
 
 Have a good day/night and no hard feelings ☆
