@@ -14,4 +14,4 @@ To whom it may concern,
 Thank you for reading thus far
 and if someone could send this to the bingle/kyusoob individual it would be appreciated, many thanks
 
-I also don't mind being blocked, I just want them to know more of the other side of the story since I did actually see them talk about me behind my back and did nothing, mea culpa
+I also don't mind being blocked, I just want them to know more of the other side of the story since I did actually see them talk about me behind my back and did nothing to confront them then, mea culpa
